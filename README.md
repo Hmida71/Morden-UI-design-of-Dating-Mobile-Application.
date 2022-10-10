@@ -90,7 +90,4 @@
 
 
 
-
-
-
-Morden UI design of Dating App 👫 made with algeria ❤  By Dz-Tm071
+ 🔥 Morden UI design of Dating App 👫 Challenge Day-1 🔥
